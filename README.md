@@ -17,7 +17,7 @@ If you have any question or something, feel free to reach out me anytime via tel
 <br>
 #### 🌹You're always welcome🌹
 
-Telegram: [@sealdevnut](https://t.me/sealdevnut) <br>
+Telegram: [@sealdev](https://t.me/sealdev) <br>
 
 
 ## 👀Usage
