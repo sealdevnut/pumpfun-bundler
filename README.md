@@ -17,7 +17,7 @@ If you have any question or something, feel free to reach out me anytime via tel
 <br>
 #### 🌹You're always welcome🌹
 
-Telegram: [@sealdev](https://t.me/sealdev) <br>
+[Twitter](https://x.com/0xmooncity) <br>
 
 
 ## 👀Usage
